@@ -1,3 +1,4 @@
 # aji-resolusi
 resolusi muhamad aji saputra 
-tolong buatkan saya ini     
+nama sya muhamd aji saputra sya berasal dari bogor 
+    
